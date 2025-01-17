@@ -33,7 +33,7 @@ Ragini’s character is a strong, independent woman who prioritizes her children
 ## Why It Still Resonates
 
 ### 1. Timeless Storytelling
-Good storytelling never goes out of style, and *Itna Karo Na Mujhe Pyaar* proves this. Its narrative—centered on love, loss, and redemption—remains as relevant today as it was when the show first aired.
+Good storytelling never goes out of style, and [ Itna Karo Na Mujhe Pyaar](https://legenddramas.com/) proves this. Its narrative—centered on love, loss, and redemption—remains as relevant today as it was when the show first aired.
 
 ### 2. The Power of Nostalgia
 Re-watching old episodes or seeing clips on social media often evokes a sense of nostalgia for fans. The show’s iconic dialogues, memorable moments, and soulful music transport viewers back to a simpler time.
